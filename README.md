@@ -1,0 +1,1 @@
+This is my pizza recipe in a microwave. You have to first mix some flour, sugar, baking powder, baking soda, salt and yogurt to prepare the dough, then microwave it for 2 mins. While it's baking, start cutting some vegetables. When the dough is ready, apply some ketchup, then add the chopped vegetables and microwave it again. Your pizza is ready.
